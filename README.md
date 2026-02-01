@@ -1,3 +1,3 @@
-Kidus Beshah
+Kidus Beshah jwq13
 Weightlifting
-A good relationship professor
+A good relationship with professor
